@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=bobdylsn&label=poems+written&color=EE7F00"
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=bobdylsn&label=poems+written&color=C44E00"
                      
 ![](https://i.postimg.cc/7Pp6gk1L/1785473767019.png) 
 <p align="center">  eu sou o Worker, haha.        Gosto de música folk...‏

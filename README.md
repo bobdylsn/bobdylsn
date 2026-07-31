@@ -1,11 +1,12 @@
-BEBE SOU EU NENEM NASCIDO sou nascido agora bebe quen NASCEU SOU EU 
-BEBE NASCEU
-TO NASCIDO
-MAMAE NASCI
-MÉDICO ESTOU VENDO A LUZ
-AGORA NASCI
-CHOREI, NASCI
-ME SENTI NASCIDO
-QUANDO NASCI DA BARRIGA DE MINHA MÃE 
-BOB FOI O NOME QUE ME DERAM QUANDO NASCI
-SOU UM BEBÊ QUE NASCEU
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=bobdylsn&label=poems+written&color=EE7F00"
+                     
+![](https://i.postimg.cc/7Pp6gk1L/1785473767019.png) 
+<p align="center">  eu sou o Worker, haha.        Gosto de música folk...‏
+
+<div align="center">
+<div align="center">
+
+<p align="center">
+
+[strawpage](https://dylanjoaquim.straw.page/)  ㅤ [lastfm](https://www.last.fm/user/pochacolost) ‏ 
+<p align="center">

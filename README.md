@@ -4,9 +4,6 @@
 <p align="center">  eu sou o Worker, haha.        Gosto de música folk...‏
 
 <div align="center">
-<div align="center">
-
-<p align="center">
 
 [strawpage](https://dylanjoaquim.straw.page/)  ㅤ [lastfm](https://www.last.fm/user/pochacolost) ‏ 
 <p align="center">
